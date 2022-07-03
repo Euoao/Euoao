@@ -2,4 +2,4 @@
 
 
 
-Hey, I am Euoao. You can also find me in
+Hey, I am Euoao. 
